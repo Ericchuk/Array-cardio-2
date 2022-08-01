@@ -1,0 +1,1 @@
+TOday is another array cardio day after a blissful weekend, I didn't make use of the normal array routine but went about it my way.
